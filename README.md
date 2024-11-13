@@ -1,4 +1,4 @@
-#ALZRVR ON TOP
+# ALZRVR ON TOP
 
 [YT](https://youtube.com/@alzrVR)
 [Insta](https://instagram.com/alzryt)
